@@ -9,4 +9,4 @@ this is mainly for ponytown, so if you want the b4i or dni list please head to t
 sevvu/sevvu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-- ps, ik adamil is a controversial ship, and i'm closely sarcastic when i say i dislike you if you don't like it. However I personally love the ship and Imo i don't see how it's toxic. But, if you don't like the ship then you can simply not interact :D
+- alvaluca shippers please dni thankss :3 
